@@ -1,2 +1,4 @@
 # minhjemmeside
-første test 
+mitt andre tekst 
+blbkjrkjrkjrrlkfrlkm
+njdnnnjdssjnjmd
