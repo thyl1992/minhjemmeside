@@ -1,4 +1,6 @@
 # minhjemmeside
 mitt andre tekst 
 blbkjrkjrkjrrlkfrlkm
-njdnnnjdssjnjmd
+njdnnnjdssjnjmdløl,øl,fø,dø.ø,dmdmsølm
+ldkfdnjflksldlkdkfd
+s
